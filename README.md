@@ -1,1 +1,0 @@
-# SCT_SD_TASK2 
